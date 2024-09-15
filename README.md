@@ -25,4 +25,6 @@
 ![yelip](https://github.com/user-attachments/assets/4cc4fec6-47ad-460a-92c9-7d883a693013)
 ![10556405_10152251139001186_37719348990791930_n](https://github.com/user-attachments/assets/e44e2272-f983-4264-80cf-3558a1910137)
 ![10556405_10152251139001186_37719348990791930_n](https://github.com/user-attachments/assets/0fab7389-8355-4c39-8147-464155c95fe0)
+![342561526_664470208819774_563828893020797991_n](https://github.com/user-attachments/assets/5503b5bd-90e4-4a53-8429-38582c67fdbf)
+
 
